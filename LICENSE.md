@@ -1,4 +1,4 @@
-# 
+# Élite YNAB herramientas para Mac OS | Instantáneo YNAB herramientas para PC Windows. Con aplicaciones móviles y historial de versiones — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
